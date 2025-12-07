@@ -1,0 +1,2 @@
+# 67bomb
+BOMBER THAT HITS 100 % CPU USED🔥🚒🧯🧯
